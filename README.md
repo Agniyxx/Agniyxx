@@ -1,6 +1,6 @@
 ## 💜 Olá, meu nome é Agne Stephane!
 
-🔭 Sou estudante de Design Digital na UFC
+🔭 Sou estudante de Design Digital na UFC.
 
 ---
 
